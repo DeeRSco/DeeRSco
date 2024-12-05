@@ -6,7 +6,7 @@
 
 ## Games I'm Currently Enjoying
 - Dave the Diver
-- Hogwarts
+- Palworld
 - Forza Horizon 5
 
 ### Connect with me 📫
